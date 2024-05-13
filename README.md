@@ -7,3 +7,5 @@ meu nome é Júlia maria
 - Utilizo esse espaço para minha organização e comparilhamento dos meus projetos desenvolvidos
 
   ### você entrar em contato comigo  📫
+
+- 00001113740358sp@aluno.educacao.sp.gov.br
